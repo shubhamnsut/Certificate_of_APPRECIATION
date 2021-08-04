@@ -1,2 +1,0 @@
-# Certificate_of_APPRECIATION
-Certificate
